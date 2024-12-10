@@ -1,2 +1,2 @@
-# Welcome
-I am [@beanedboi](https://github.com/beanedboi) and I am new here :>
+# Hi
+I am [@beanedboi](https://github.com/beanedboi)
